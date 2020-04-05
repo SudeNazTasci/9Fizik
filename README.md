@@ -2,7 +2,7 @@
 Sude Naz Taşçı
 9/A 179
 
-FİNCANDA ÇİKOKATALI KEK 
+FİNCANDA ÇİKOKATALI KEK     
 Malzemeler
   * 2 Yumurta
   * 4 Yemek Kaşığı Şeker
